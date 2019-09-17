@@ -10,6 +10,10 @@
 
 ![项目截图](https://raw.githubusercontent.com/shaoshanhuan/kl_jxc/master/_docs/video_2019-09-16_164641%5B00_00_06--00_00_26%5D.gif)
 
+![项目截图](https://raw.githubusercontent.com/shaoshanhuan/kl_jxc/master/_docs/录屏作品[00_00_05--00_00_25].gif)
+
+![项目截图](https://raw.githubusercontent.com/shaoshanhuan/kl_jxc/master/_docs/录屏作品[00_00_05--00_00_25].gif)
+
 我的联系方式：
 手机：13685603914
 微信：weidong1813520278
